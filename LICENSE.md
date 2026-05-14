@@ -1,4 +1,4 @@
-
+Download dress to impress Script new for dress to impress, the best script available, featuring auto-farm and auto-collect. This powerful tool ensures you have the upper hand in
 
 
 
